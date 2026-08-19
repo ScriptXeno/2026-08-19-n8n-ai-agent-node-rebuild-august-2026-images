@@ -1,0 +1,1 @@
+# 2026-08-19-n8n-ai-agent-node-rebuild-august-2026-images
